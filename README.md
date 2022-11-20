@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Pouya Norouzani as NRXANE
+-  I am graduate from Amirkabir University of Technology (Tehran Polytechnic) with a major in Industrial Engineering and minor in Logistics and Supply Chain.
+-  I’m interested in Optimization in Business and Industrial Systems.
+-  I’m currently learning Python and Data Science. Furthermore, I'm enthusiastic to programming with VBA!
+-  You can follow me on my GitHub and Linkedin:
+-  
