@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **P.Norouzani@gmail.com**
 
-- 📄 Know about my experiences [https://ir.linkedin.com/in/pouya-norouzani](https://ir.linkedin.com/in/pouya-norouzani)
+- 📄 Know about my experiences [https://ir.linkedin.com/in/pouya-norouzani](NRXANE)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
